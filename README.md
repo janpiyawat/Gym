@@ -1,3 +1,5 @@
+# Cardio
+1. Zumba - https://youtu.be/bm4WZyH5p2I
 # Butt
 1. https://www.youtube.com/watch?v=PmW9WPczvg0
 # Abs
