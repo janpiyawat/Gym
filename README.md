@@ -1,3 +1,5 @@
+# Love handles
+1. https://youtu.be/k877Z79GCOY
 # Cardio
 1. Zumba - https://youtu.be/bm4WZyH5p2I
 # Butt
