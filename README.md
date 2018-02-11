@@ -17,5 +17,6 @@
 # Whole body
 1. https://youtu.be/WbbFHcfj_oM
 1. https://youtu.be/LrB4CjpC-F8
-
+# Shoulders & Abs
+1. http://fitnessfooddiva.com/workouts/fitness-tips/10-weeks-fit-day-2-shoulders-abs/
 
